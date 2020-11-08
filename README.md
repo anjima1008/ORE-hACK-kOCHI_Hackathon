@@ -1,1 +1,0 @@
-# ORE-hACK-kOCHI_Hackathon
